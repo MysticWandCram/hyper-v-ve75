@@ -1,4 +1,4 @@
-# 
+# updated VMware Workstation para PC plugins é o melhor VMware Workstation para PC plugins com ferramentas de linha de comando e alocacao de recursos. Seguro, confiável e otimizado
 
 
 
